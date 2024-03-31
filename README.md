@@ -1,7 +1,7 @@
 - 👋 Bonjour, je m'appelle Calinda
 - 👀 Je suis intéressée par des vidéos d'assemblage en couture
 - 🌱 J'apprend actuellement comment vendre mes cours de couture sur mesure en ligne
-- 💞️ Je cherche à collaborer sur des vidéos de couture et des techniques d'assemblage qui m'évitera de filmer pour les mêmes techniques d'assemblage.
+- 💞️ Je souhaiterai collaborer avec des personnes qui partagent la même passion que moi ou des personnes qui s'y connaît très bien en montage de vidéo.
 - 📫 Vous pouvez me joindre par mail wake77cre@gmail.com ou par mp Espoir Créations
 
 
